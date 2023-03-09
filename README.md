@@ -1,0 +1,2 @@
+# chtonibydcrytoe
+Кликер ничего более 
